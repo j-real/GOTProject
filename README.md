@@ -1,3 +1,0 @@
-# GOTProject
-# GOTProject
-# GOTProject
